@@ -12,3 +12,16 @@ cellphone
 
 
 ![image](https://github.com/user-attachments/assets/345ed5d0-4f47-49bb-810b-d67247c9b864)
+
+
+
+
+bottle
+
+
+
+
+
+
+![image](https://github.com/user-attachments/assets/a0067124-2e39-45a8-ae6d-d25609fa554d)
+
